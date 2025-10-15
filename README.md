@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rahmatrizkyrifai@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZPxpSk98tjbkiyskhOze1c4cbI-DeF26/view?usp=drive_link](https://drive.google.com/file/d/1ZPxpSk98tjbkiyskhOze1c4cbI-DeF26/view?usp=drive_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/13qrOepLnxMu9kFqbxA-X2IPd3x504Fkd/view?usp=sharing
 
 - ⚡ Fun fact **I'm very good at guitar🎸HAHAHA**
 
